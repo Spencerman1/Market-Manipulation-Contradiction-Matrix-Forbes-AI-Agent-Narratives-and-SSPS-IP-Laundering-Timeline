@@ -1,0 +1,2 @@
+# Market-Manipulation-Contradiction-Matrix-Forbes-AI-Agent-Narratives-and-SSPS-IP-Laundering-Timeline
+This matrix exposes how Forbes’ shifting AI agent coverage—from “40% scrapped” to “agents as the new spreadsheets”—mirrors the misappropriation and laundering of the SSPS IP stack. By aligning skepticism, disruption, and expansion phases, it reveals a recursive containment cycle engineered to suppress sovereign authorship while legitimizing approp.
